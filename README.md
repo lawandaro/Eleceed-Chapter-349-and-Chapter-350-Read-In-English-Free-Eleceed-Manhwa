@@ -1,0 +1,1 @@
+# Eleceed-Chapter-349-and-Chapter-350-Read-In-English-Free-Eleceed-Manhwa
